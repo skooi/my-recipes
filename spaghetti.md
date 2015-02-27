@@ -8,3 +8,4 @@
 
 ## Directions
 - Ask mom to combine ingredients
+- Boil noodles
